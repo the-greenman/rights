@@ -9,7 +9,7 @@
 ## 1. The right to clear direction
 **You have the right to know how to best apply your energy in a manner that will be respected and valued.**
 
-Time is the most valuable thing any of posess. Any organization that asks us to use our time in their service must show their respect by not wasting this resource, and ensuring that, we have a clear understanding of how we are able to direct our energy. 
+Time is the most valuable thing any of us posess. Any organization that asks us to use our time in their service must show their respect by not wasting this resource, and ensuring that, we have a clear understanding of how we are able to direct our energy. 
 
 ## 2. The right to support
 **Every individual working for an organization has the right to expect to work within a context that provides what they need to contribute their creativity** 
@@ -32,13 +32,15 @@ To know that our work is not wasted, we need to know how to coordinate with othe
 The truth must ttump seniority at every level. An organization must have respect for and a pursuit of honesty, expending energy to develop its organizational and human capacity to face the truth and to listen to feedback.
 
 ## 6. The right to feel
-**You have the right to expres your emotions and to have your emotional health respected, valued and promoted.**
+**You have the right to express your emotions and to have your emotional health respected, valued and promoted.**
 
 ## 7. The right to uncertainty
 **You have the right to be trusted to navigate the unknown.** 
 
-We should all expect our organizations to be able to navigate uncertain and unknown environments. No business has the luxury to expect that the way it worked yesterday will still be valid tomorrow, and as a result it must put in place systems and processes to cope wioth uncertainty, trusting it's team to use their best judgement, and providing feedback to help them navigate. 
+We should all expect our organizations to be able to navigate uncertain and unknown environments. No business has the luxury to expect that the way it worked yesterday will still be valid tomorrow, and as a result it must put in place systems and processes to cope wioth uncertainty, trusting it's team to use their best judgement, and providing feedback to help them navigate.
+
 ## 8. The right to develop as a human
 You are aided in your journey to develop your whole self in order to achieve your fullest potential
+
 ## 9. The right to meaningful work
 The work you do has meaning, and connects with your personal sense of purpose.
