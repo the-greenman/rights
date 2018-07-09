@@ -37,13 +37,15 @@ The truth must trump seniority at every level. An organization must have respect
 
 To do our best work, we must trust that those we work with, and they need to trust us. This kind of connection must be given the space to grow and be nurtured into existence - and you have the right to expect that the organizations you work with are doing what is needed.
 
-## 7. The right to uncertainty
-**You have the right to be trusted to navigate the unknown.** 
+## 7. The right to fail
+**You have the right to be supported and trusted to navigate the unknown.** 
 
-We should all expect our organizations to be able to navigate uncertain and unknown environments. No business has the luxury to expect that the way it worked yesterday will still be valid tomorrow, and as a result it must put in place systems and processes to cope wioth uncertainty, trusting it's team to use their best judgement, and providing feedback to help them navigate.
+In order to navigate unknown and uncertain environments, organizations, and those that work with them, must know how to fail well. No business has the luxury to expect that the way it worked yesterday will still be valid tomorrow, and as a result it must put in place systems and processes to cope with uncertainty, trusting it's team to use their best judgement, and providing feedback to help them navigate.
 
 ## 8. The right to develop as a human
-You are aided in your journey to develop your whole self in order to achieve your fullest potential
+**You have the right to grow as an individual, and for your work to support and encorage your growth.**
+
+We should all be are aided in your journey to develop your whole self in order to achieve your fullest potential
 
 ## 9. The right to meaningful work
 The work you do has meaning, and connects with your personal sense of purpose.
