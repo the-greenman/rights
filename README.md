@@ -11,28 +11,31 @@
 
 Time is the most valuable thing any of us posess. Any organization that asks us to use our time in their service must show their respect by not wasting this resource, and ensuring that, we have a clear understanding of how we are able to direct our energy. 
 
-## 2. The right to support
-**Every individual working for an organization has the right to expect to work within a context that provides what they need to contribute their creativity** 
+## 2. The right to get things done
+**The organization you work with must provide a context that supports your work, and puts it to good use without unnecessary waste .**  
 
-To work well, we need to trust that we are being looked after. We must be paid a fair wage, given enough time, provided with tools and an environment that is conducive to us achieving our goals. 
+We all have the right to expect an organization to be competent at doing what it does, and that it will support our individual contributions to the best of it's abilities. We must be paid a fair wage, given enough time, provided with tools and an environment that is conducive to us achieving our goals. 
 
-## 3. The right to evolve
-**Your work should evolve over time, adapting to changes and stimulating you to learn new things** 
+## 3. The right to be relevant
+**You have the right to expect that your work is relevant, and will evolve as the environment within which it is applies changes**
 
-To be treated as humans rather than machines, and to ensure that, over time, our work remains relevant, we have the right to expect that what we do will continue to evolve. As the context within which we work changes, so must the work we do. Our organizations must have the capacity to change with the times. 
+There are possibly very few jobs left on the planet that are not impacted by the rapid march change. We should all expect that the organizations we work for are able to sense when they need to change, and are capable of altering what they produce and the way in which they operate to ensure that our work remains relevant. 
 
-## 4. The right to effective process
-**The appropriate processes must be in place to ensure that your work is compatible with that of your colleagues**
+## 4. The right to good governance
+**You have the right work in an environment that has the appropriate procesess and policies in place to create a stable, productive environment.**
 
-To know that our work is not wasted, we need to know how to coordinate with others, how to produce in a form that is useful to others and know who has authority to get things done. It must be clear how decisions get made, who needs to make them, and the organization will adapt when new, uncertain, situations arise. 
+The organizations we work with must be... organized. To produce relevant, useful and valued work, we must trust that our employers are effective at creating environments where our time is not wasted, nor our work undermined by inefficiency, politics, bias or corruption. 
+It must be clear how decisions get made, who needs to make them, and the organization will adapt when new, uncertain, situations arise. 
 
-## 5. The right to be honest
-**You have the right to tell the truth and to learn your mistakes without fear of negative consequences.**
+## 5. The right to honesty
+**You have the right to tell your truth, to expect the same of others, and to know that honesty is not penalised**
 
-The truth must ttump seniority at every level. An organization must have respect for and a pursuit of honesty, expending energy to develop its organizational and human capacity to face the truth and to listen to feedback.
+The truth must trump seniority at every level. An organization must have respect for and a pursuit of honesty, expending energy to develop its organizational and human capacity to face the truth and to listen to feedback.
 
-## 6. The right to feel
-**You have the right to express your emotions and to have your emotional health respected, valued and promoted.**
+## 6. The right to trust and be trusted
+**You have the right to know that the level of trust between you and those you work with will grow over time.***
+
+To do our best work, we must trust that those we work with, and they need to trust us. This kind of connection must be given the space to grow and be nurtured into existence - and you have the right to expect that the organizations you work with are doing what is needed.
 
 ## 7. The right to uncertainty
 **You have the right to be trusted to navigate the unknown.** 
